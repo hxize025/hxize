@@ -1,2 +1,2 @@
-# hxize
-This is my GitHub profile
+# HXIZE
+Start-up, Creator
